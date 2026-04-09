@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BACE821213MJCLSL06
+BACE821213MJCLSL06
